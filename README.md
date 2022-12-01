@@ -1,7 +1,16 @@
 # xmas-gift-2022
 
+Thanks Santa!!
+
 Will be updated very soon! Sorry for the wait.
 (Still some tier missing)
+
+$200: Foam roller
+
+[Decathlon 3-in-1 basic massage kit](https://www.decathlon.com.hk/en/p/3-in-1-basic-massage-kit-foam-roller-ball-stick/_/R-p-304064)
+
+$300:
+TBC
 
 $500: Unlock! Heroic Adventures (USD 34.98) + Unlock! Escape Adventures (USD 35.11)
 
@@ -16,3 +25,8 @@ $800: PageFip Firefly
 $1000: PageFlip Dragonfly
 
 [Amazon - PageFlip Dragonfly](https://www.amazon.com/PageFlip-Dragonfly-Bluetooth-4-Pedal-Controller/dp/B06VT1C5ND)
+
+$1200:
+ 
+- Either Logitech BRIO 4K Ultra HD WebCam (uncertain about the price), or
+- feel free to mix the above!
