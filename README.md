@@ -2,15 +2,16 @@
 
 Thanks Santa!!
 
-Will be updated very soon! Sorry for the wait.
-(Still some tier missing)
-
 $200: Foam roller
 
 [Decathlon 3-in-1 basic massage kit](https://www.decathlon.com.hk/en/p/3-in-1-basic-massage-kit-foam-roller-ball-stick/_/R-p-304064)
 
 $300:
-TBC
+
+Combination of:
+
+- the massage kit above / foam roller
+- USB 3.0 (3.1) to SATA 2.5" harddisk adapter (my harddisk is Intel SSD 730)
 
 $500: Unlock! Heroic Adventures (USD 34.98) + Unlock! Escape Adventures (USD 35.11)
 
